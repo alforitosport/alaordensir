@@ -1,0 +1,2 @@
+# alaordensir
+favoritismo para todos
